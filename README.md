@@ -1,4 +1,3 @@
-# pavanireddychanwala
 # 👋 Hi, I’m Pavani Reddy  
 
 🎓 **Master of Science in Information Technology (University of Cincinnati, 2025)**  
